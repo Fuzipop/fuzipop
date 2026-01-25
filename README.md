@@ -1,3 +1,6 @@
 ![1](https://files.catbox.moe/ax0f0y.jpg)
 ![1](https://files.catbox.moe/lykg1z.png)
 ![1](https://files.catbox.moe/pomuna.gif)
+![1](https://files.catbox.moe/t06tq7.gif)
+![1](https://files.catbox.moe/7qj3u7.gif)
+![1](https://files.catbox.moe/1ktk2w.png)
