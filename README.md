@@ -1,3 +1,7 @@
+<div align="center">
+  
+![1](https://komarev.com/ghpvc/?username=Fuzipop&abbreviated=true&color=FFD587&style=plastic&label=Stars)
+  
 ![1](https://files.catbox.moe/jxuzg4.jpg)
 ![1](https://files.catbox.moe/fzou3p.png)
 ![1](https://files.catbox.moe/q6z03e.png)
