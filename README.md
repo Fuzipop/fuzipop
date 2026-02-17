@@ -2,7 +2,7 @@
   
 ![1](https://komarev.com/ghpvc/?username=Fuzipop&abbreviated=true&color=FFD587&style=plastic&label=Stars)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31cgzfudjiif3olx65kkc3ot4awe&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color_cover=false&bar_color=92b6f0)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31cgzfudjiif3olx65kkc3ot4awe&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color_cover=false&bar_color=92b6f0)](https://github.com/kittinan/spotify-github-profile)
   
 ![1](https://files.catbox.moe/jxuzg4.jpg)
 ![1](https://files.catbox.moe/fzou3p.png)
