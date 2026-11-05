@@ -14,12 +14,9 @@
 
 <br>
 
-<details> 
-<a
-(https://files.catbox.moe/qsoo6a.png)>byi 
-/a>
-<summary>  $${\color{#4B4C3B}Note}$$</summary>
-  $${\color{#87896A}test!}$$ 
+<details>
+<summary>  $${\large\color{#F3BCA4}BYI}$$</summary>
+  $${\color{#87896A}test}$$ 
 $${\color{#87896A}test}$$
   
 </details>
