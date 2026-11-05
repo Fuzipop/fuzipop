@@ -21,4 +21,11 @@ $${\color{#87896A}test}$$
   
 </details>
 
+<details>
+<summary>  $${\large\color{#F3BCA4}DNI}$$</summary>
+  $${\color{#87896A}test}$$ 
+$${\color{#87896A}test}$$
+  
+</details>
+
 ![](https://files.catbox.moe/t9l567.png)
