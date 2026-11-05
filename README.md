@@ -6,7 +6,7 @@
 
 <p align="center"><img width="390" src="https://files.catbox.moe/xj9sky.png" alt="fang" align="right" width="200" /></p>
 
-꒰　﹒　"　Aqua　⋮　 Byte　"
+꒰　﹒　"　Fuzi　⋮　 Luci　"
 ⠀ ⠀⠀ ⠀Selectively mute⠀ ⠀⠀ ⠀⠀﹒　︵︵ ⠀⠀He ﾉ Him
 ⁽⁽　⠀࣪⠀　 Cancer ﾉ INTP⠀　〃 　 ࣪⠀　21yo　. .ᐣ　　✦
 〰 .    --- AUDHD ﾉ BPD  .ᐟ.ᐟ
