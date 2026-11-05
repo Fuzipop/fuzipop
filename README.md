@@ -8,7 +8,7 @@
 
 ꒰　﹒　"　Fuzi　⋮　 Luci　"
 ⠀ ⠀⠀ ⠀Selectively mute⠀ ⠀⠀ ⠀⠀﹒　︵︵ ⠀⠀He ﾉ Him
-⁽⁽　⠀࣪⠀　 Cancer ﾉ INTP⠀　〃 　 ࣪⠀　21yo　. .ᐣ　　✦
+⁽⁽　⠀࣪⠀　 Cancer ﾉ 4w5⠀　〃 　 ࣪⠀　21yo　. .ᐣ　　✦
 〰 .    --- AUDHD ﾉ BPD  .ᐟ.ᐟ
 
 ![](https://files.catbox.moe/t9l567.png)
