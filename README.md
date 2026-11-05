@@ -12,5 +12,16 @@
 ⠀ ⠀⁽⁽　⠀࣪⠀　 Cancer ﾉ 4w5⠀　〃 　 ࣪⠀　21yo　. .ᐣ　　✦
 〰 .    --- AUDHD ﾉ BPD ﾉ PPD  .ᐟ.ᐟ
 
+<br>
+
+<details> 
+<a
+(https://files.catbox.moe/qsoo6a.png)>byi 
+/a>
+<summary>  $${\color{#4B4C3B}Note}$$</summary>
+  $${\color{#87896A}test!}$$ 
+$${\color{#87896A}test}$$
+  
+</details>
 
 ![](https://files.catbox.moe/t9l567.png)
