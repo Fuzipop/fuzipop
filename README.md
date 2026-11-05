@@ -6,9 +6,11 @@
 
 <p align="center"><img width="390" src="https://files.catbox.moe/xj9sky.png" alt="fang" align="right" width="200" /></p>
 
+<br> 
 ꒰　﹒　"　Fuzi　⋮　 Luci　"
-⠀ ⠀⠀ ⠀Selectively mute⠀ ⠀⠀ ⠀⠀﹒　︵︵ ⠀⠀He ﾉ Him
-⁽⁽　⠀࣪⠀　 Cancer ﾉ 4w5⠀　〃 　 ࣪⠀　21yo　. .ᐣ　　✦
-〰 .    --- AUDHD ﾉ BPD  .ᐟ.ᐟ
+⠀Mentally unwell⠀﹒　︵︵ ⠀⠀He ﾉ Him
+⠀ ⠀⁽⁽　⠀࣪⠀　 Cancer ﾉ 4w5⠀　〃 　 ࣪⠀　21yo　. .ᐣ　　✦
+〰 .    --- AUDHD ﾉ BPD ﾉ PPD  .ᐟ.ᐟ
+
 
 ![](https://files.catbox.moe/t9l567.png)
