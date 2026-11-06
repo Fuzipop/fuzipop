@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://files.catbox.moe/ae5nms.png)
+![](https://files.catbox.moe/hay349.png)
 
 ![1](https://komarev.com/ghpvc/?username=Fuzipop&abbreviated=true&color=FFD1AE&style=plastic&label=Stars)
 
@@ -23,13 +23,16 @@ $${\color{#F3BCA4}〰 .    -\ \color{#FFD1AE}AU\color{#F5DFC6}DH\color{#FFD1AE}D
 <summary>  $${\large\color{#F5DFC6}B\color{#FFD1AE}Y\color{#F3BCA4}I}$$</summary>
   $${\color{#F3BCA4}test}$$ 
 $${\color{#F3BCA4}test}$$
-  
+
 </details>
 
 <details>
 <summary>  $${\large\color{#F5DFC6}D\color{#FFD1AE}N\color{#F3BCA4}I}$$</summary>
-  $${\color{#F3BCA4}test}$$ 
-$${\color{#F3BCA4}test}$$
+  $${\color{#F3BCA4}𑣲\ Basic\ DNI\ criteria\ ⸝\ Bigots\ ⸝\ Pro-Fiction\ ⸝\ Pro-Contact\ ⸝\ Anti-Objectum}$$ 
+$${\color{#F3BCA4}Anti-Xenogenders\ and\ Neopronouns\ ⸝\ R*pe jokes\ ⸝\ DNI\ if\ you\ still\ play\ Forsaken,}$$
+$${\color{#F3BCA4}Pressure,\ Doom\ by\ fate\ and\ Grace\ ⸝\ Dsmp\ ⸝\ TTC\ ⸝\ TCOAAL}$$
+$${\color{#F3BCA4}under\ 14-\ ⸝\ Dandy's\ world\ (if\ your\ normal\ enough)\ ⸝\ The\ Freak\ Circus\ fans}$$ 
+$${\color{#F3BCA4}You\ force\ religion\ ⸝\ Tr*mp/Chatgpt/AI/Israel\ Supporters.}$$
   
 </details>
 
@@ -37,6 +40,9 @@ $${\color{#F3BCA4}test}$$
 
 ![](https://files.catbox.moe/vdsx2x.png)
 
-![](https://files.catbox.moe/bjs83e.png)
+<img src="https://files.catbox.moe/00qtgl.png" width="200" height="66"/>
+<img src="https://files.catbox.moe/u25iy1.png" width="200" height="66"/>
+<img src="https://files.catbox.moe/b42doj.png" width="200" height="66"/>
+<img src="https://files.catbox.moe/bjs83e.png" width="270" height="66"/>
 
 ![](https://files.catbox.moe/t9l567.png)
