@@ -21,8 +21,16 @@ $${\color{#F3BCA4}〰 .    -\ \color{#FFD1AE}AU\color{#F5DFC6}DH\color{#FFD1AE}D
 
 <details>
 <summary>  $${\large\color{#F5DFC6}B\color{#FFD1AE}Y\color{#F3BCA4}I}$$</summary>
-  $${\color{#F3BCA4}test}$$ 
-$${\color{#F3BCA4}test}$$
+  $${\color{#F3BCA4}I\ have\ social\ anxiety\ so\ I\ won't\ talk\ or\ approach\ anyone}$$
+$${\color{#F3BCA4}first\ but\ it's\ very\ rarely\ of\ me\ to\ be\ brave\ enough}$$
+  $${\color{#F3BCA4}to\ do\ so\ but\ I'm\ very\ friendly\ and\ always\ open\ for\ friends.}$$ 
+
+$${\color{#F3BCA4}︶⊹︶︶୨୧︶︶⊹︶}$$
+
+$${\color{#F3BCA4}English\ isn't\ my\ first\ language,\ please\ use\ tone\ tags\ with\ me}$$
+$${\color{#F3BCA4}I'm\ kinda\ sensitive\ so\ words\ sometimes\ effect\ me\ easily}$$
+
+$${\color{#F3BCA4}︶⊹︶︶୨୧︶︶⊹︶}$$
 
 </details>
 
